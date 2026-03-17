@@ -16,6 +16,11 @@ ___
 </p>
 
 ```
+vvvv PT STUFF vvvv
+✦ PONIES I USUALLY USE; (in location info under profile)
+✦ WHERE I'M USUALLY AT; field behind bakery, in bakery, around the path going down from spawn, in front of bakery, RARELY AROUND LIBRARY
+
+vvvv PROFILE vvvvv
 ✦ Name: Marie / Latham (whichever you like)
 ✦ Gender: What's that? I dunno
 ✦ Pronouns: She/Her or He/Him I don't mind either one
