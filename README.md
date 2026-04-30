@@ -17,7 +17,7 @@ ___
 
 ```
 vvvv PT STUFF vvvv
-✦ PONIES I USUALLY USE; (in location info under profile)
+✦ PONIES I USUALLY USE; (trotting under this box!)
 ✦ WHERE I'M USUALLY AT; field behind bakery, in bakery, around the path going down from spawn, in front of bakery, RARELY AROUND LIBRARY
 
 vvvv PROFILE vvvvv
@@ -28,6 +28,13 @@ vvvv PROFILE vvvvv
 ✦ Fandoms: Reverse: 1999, NomNomNami and Arcadekitten games, Hollow Knight, Undertale/Deltarune, Alien Stage, Land of the Lustrous, JoJo's
 ✦ What I do? Traditional/Digital art, Cosplay, Make plushies, Play kalimba, Play Ponytown, grind on Reverse, waste money in cons
 ```
+<p align=center>
+<img height="100" alt="bubis i usually use" src="https://github.com/user-attachments/assets/c8aed073-4e09-4c65-80c6-b9587d8d14cc" />
+</p>
+
+<p align=center>
+<img height="150" alt="pony-town-RUBUSKAR1999signata-trot-blinking-padded-toy372-4x1-ezgif com-effects" src="https://github.com/user-attachments/assets/c6a2f470-3357-4ce3-975f-c9d9d36b82aa" /><img height="150" alt="pony-town-AnAnLeeR99signata-trot-blinking-padded-4x-ezgif com-effects" src="https://github.com/user-attachments/assets/8586463e-0474-42e4-b323-858985ec9c82" /><img height="150" alt="pony-town-Monitoringw2isignata-trot-blinking-padded-4x1-ezgif com-effects" src="https://github.com/user-attachments/assets/f7dcee03-09b4-4a12-bd88-dd9003b36f0e" /><img height="150" alt="pony-town-Mr-APPLeR99signata-trot-blinking-padded-4x-ezgif com-effects" src="https://github.com/user-attachments/assets/4725a2b0-be4b-4c13-ac76-091c6f2c1ceb" />
+</p>
 
 <p align=center>
 <img height="100" alt="Untitled1221_20260312152438" src="https://github.com/user-attachments/assets/ae7b82f8-a027-4e94-8d0c-a3096be6d3b1" />
