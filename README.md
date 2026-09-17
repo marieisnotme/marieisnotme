@@ -8,7 +8,7 @@ ___
 
 <h2>↳ ❝ [ WELCOME TO THE DANUBE DAWN!! >:3 ] ¡! ❞</h2>
 <h3>People call me Latham, Marie, or Ayinara</h3>
-<i>She/Her or He/Him</i>
+<i>She/Her or They/Them</i>
 
 <p align=center>
 <img height="200" alt="Screenshot_2026-03-12_153833-removebg-preview" src="https://github.com/user-attachments/assets/40d0dfde-7cef-4541-85ac-8124f2ed9515" />
