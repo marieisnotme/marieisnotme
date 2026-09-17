@@ -23,7 +23,7 @@ vvvv PT STUFF vvvv
 vvvv PROFILE vvvvv
 ✦ Name: Marie / Latham (whichever you like)
 ✦ Gender: What's that? I dunno
-✦ Pronouns: She/Her or He/Him I don't mind either one
+✦ Pronouns: She/Her or They/Them I don't mind either one
 ✦ Bday: July 30th
 ✦ Fandoms: Reverse: 1999, NomNomNami and Arcadekitten games, Hollow Knight, Undertale/Deltarune, Alien Stage, Land of the Lustrous, JoJo's
 ✦ What I do? Traditional/Digital art, Cosplay, Make plushies, Play kalimba, Play Ponytown, grind on Reverse, waste money in cons
